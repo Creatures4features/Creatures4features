@@ -2,6 +2,7 @@
 ![1](https://github.com/user-attachments/assets/e4cf060c-e180-40d7-963c-e54bc4551458)
 
 ### **Hi! I'm that one blue addison you've maybe seen on ponytown.** I like the blue addison. **A lot :o)**
+### I don't really like talking to people but I do like it when people sit with me! Cuddles and hiding are perfectly fine! Only some of my ponies have c+h in their names, but this applies to all of them ^^
 ### **I'm sorry if you say something to me and I don't respond. I'm often offtab or in the menu so I probably didn't notice you.** This especially applies to whispers, I'm TERRIBLE at noticing them.
 ### I love to block and mute people. If you're needlessly rude, generally annoying or I just don't like your vibes I'll probably mute you. Everyone should block and mute! 
 ### Being nice to others is very easy. I always try to be nice! You should also try to be nice :o]
