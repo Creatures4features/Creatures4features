@@ -9,7 +9,9 @@
 ### 🌟 - Being nice to others is very easy. I always try to be nice! You should also try to be nice :o] 
 ### ✨ - Reading this wasn't an obligation but I appreciate it! I hope you're having a good day! ^^ 
 
-![2](https://github.com/user-attachments/assets/8557eece-1810-4251-8441-62dae32fe375)
+![pony-town-_All we do is advertise!_-annoyed-padded-ponyplush-4x](https://github.com/user-attachments/assets/190fd820-40ae-4fb5-9038-c8a7ca4ca67d)
+![pony-town-_All we do is advertise!_-head-shake-with-closed-eyes-padded-ponyplush-4x](https://github.com/user-attachments/assets/d80d424c-fb3c-48da-ae30-d89c5e1b9e75)
+
 
 ## Character pairings I really like! (preferred dynamics are italicised)
 - Tenna + Mettaton (romantic)
@@ -54,4 +56,4 @@
 ![pony-town-_All we do is advertise!_-sneeze-padded-ponyplush-4x](https://github.com/user-attachments/assets/b2119440-fd20-41a4-9513-7857cbf47ddd)
 
 
-
+![2](https://github.com/user-attachments/assets/8557eece-1810-4251-8441-62dae32fe375)
