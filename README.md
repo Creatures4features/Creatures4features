@@ -20,7 +20,7 @@
 - Kris + Ralsei (***romantic*** or platonic)
 - Kris + Noelle (romantic or platonic)
 - Kris + Susie (Strictly ***PLATONIC***)
-- Spamton + The addisons (platonic or ***familial***)
+- Spamton + The addisons (Any relationship! Though I do personally have a preference for them being brothers, I'm not very strict about it!)
 
   ![pony-town-  Addison Kisser _ DR S_I  -kiss-sit-padded-ponyplush-4x](https://github.com/user-attachments/assets/9ace1c96-6c1d-4fdc-9e3c-f9e15f1f62a4)
 ![pony-town-_All we do is advertise!_-kiss-sit-padded-toy29-4x](https://github.com/user-attachments/assets/7bb53b02-b136-4d49-b45e-3558ec315732)
