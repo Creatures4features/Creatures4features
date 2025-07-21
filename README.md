@@ -12,27 +12,28 @@
 
 
 ## Other interests!
-💙 - Endacopia
-🩷 - MLP:FIM
-💙 - Smile For Me
-🩷 - Great God Grove
-💙 - Horror movies
+💙 - Endacopia -
+🩷 - MLP:FIM -
+💙 - Smile For Me -
+🩷 - Great God Grove -
+💙 - Horror movies - 🩷
+
 
   ![pony-town-  Addison Kisser _ DR S_I  -kiss-sit-padded-ponyplush-4x](https://github.com/user-attachments/assets/9ace1c96-6c1d-4fdc-9e3c-f9e15f1f62a4)
 ![pony-town-_All we do is advertise!_-kiss-sit-padded-toy29-4x](https://github.com/user-attachments/assets/7bb53b02-b136-4d49-b45e-3558ec315732)
 
 
 ## My favourite Deltatune ships!
-🧡 - Tenna X Mettaton
-💛 - Tenna X Queen
-🧡 - Kris X Berdly
-💛 - Kris X Ralsei
-🧡 - Kris X Noelle
-💛 - Spamton X Blue
-🧡 - Pink X Blue
-💛 - Spamton X Pink
-🧡 - Literally just any of the Addisons with eachother (including Spamton)
-💛 - Mike Polycule
+🧡 - Tenna X Mettaton -
+💛 - Tenna X Queen -
+🧡 - Kris X Berdly -
+💛 - Kris X Ralsei -
+🧡 - Kris X Noelle -
+💛 - Spamton X Blue -
+🧡 - Pink X Blue -
+💛 - Spamton X Pink -
+🧡 - Literally just any of the Addisons with eachother (including Spamton) -
+💛 - Mike Polycule - 🧡
 
 
 ![pony-town-_All we do is advertise!_-yawn-padded-ponyplush-4x](https://github.com/user-attachments/assets/5e0f3237-8308-4bd7-8c00-a37806852b28)
