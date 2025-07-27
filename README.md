@@ -1,9 +1,9 @@
 
 ![1](https://github.com/user-attachments/assets/e4cf060c-e180-40d7-963c-e54bc4551458)
 
-### 💙 - **Hi! I'm that one blue addison you've maybe seen on ponytown.** I like the blue addison. I also love Blue/Spam and **hate** Spam/Tenna :-)
+### 💙 - ***Hi! I'm that one blue addison you've maybe seen on ponytown.*** I like the blue addison. I also love Blue/Spam and ***hate*** Spam/Tenna :-)
 ### 🩷 - I'm not very good at talking to people but I do like it when people sit with me! *Cuddles and hiding are perfectly fine!* Only some of my ponies have c+h in their names, but this applies to all of them ^^ 
-### 🧡 - **I'm sorry if you say something to me and I don't respond. *I'm often offtab or in the menu* so I probably didn't notice you.** This especially applies to whispers, I'm TERRIBLE at noticing them. 
+### 🧡 - ***I'm sorry if you say something to me and I don't respond. ***I'm often offtab or in the menu*** so I probably didn't notice you.*** This especially applies to whispers, I'm TERRIBLE at noticing them. 
 ### 💛 - If you try to talk to me I'll try my best to talk back! Just be aware that I have very bad anxiety. Talking to people is really difficult for me ,,, 
 ### 🤍 - Reading this wasn't an obligation but I appreciate it! I hope you're having a good day! ^^ 
 
