@@ -46,7 +46,13 @@
 
 ------
 
+![pony-town-  BANNER _ BLUE ADDISON  -boop-sit-padded-ponyplush-4x](https://github.com/user-attachments/assets/c5b421cd-8637-41f8-8105-ad60bc77c4ce)
+![pony-town-_All we do is advertise!_-boop-sit-padded-4x](https://github.com/user-attachments/assets/a0914bc7-78c9-452e-be43-de7c2d41d31c)
 
+BTW: these are two different addison! Left is Banner and right is Blue! They're completely different people. 
+Banner is Spams oldest brother, and Blue is Spams friend/ex. They're NOT the same guy :o I'm still working on figuring out Banners design, eheheh. Just, don't be shippy with Banner if you're a Spam.
+
+------
 
 ### 123 blueaddison cybercafe sex
 
