@@ -60,5 +60,8 @@ Banner is Spams oldest brother, and Blue is Spams friend/ex. They're NOT the sam
 ![pony-town-123 blueaddison cybercafe sex-head-shake-with-closed-eyes-padded-4x](https://github.com/user-attachments/assets/508c5bab-e185-4279-af4e-038a147b6de1)
 ![pony-town-_All we do is advertise!_-sneeze-padded-ponyplush-4x](https://github.com/user-attachments/assets/b2119440-fd20-41a4-9513-7857cbf47ddd)
 
-<img width="705" height="470" alt="WAHOOOO" src="https://github.com/user-attachments/assets/3bdd97ae-74ad-4b4d-a450-7e7a9927194e" />
+------
+
+<img width="492" height="514" alt="baby spammy" src="https://github.com/user-attachments/assets/edf1ebe5-8462-436a-a30f-f5d6224e6c4c" />
+
 
