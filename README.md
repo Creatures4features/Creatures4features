@@ -62,6 +62,7 @@ Banner is Spams oldest brother, and Blue is Spams friend/ex. They're NOT the sam
 
 ------
 
-<img width="492" height="514" alt="baby spammy" src="https://github.com/user-attachments/assets/edf1ebe5-8462-436a-a30f-f5d6224e6c4c" />
+<img width="600" height="600" alt="baby spammy" src="https://github.com/user-attachments/assets/ad2bf0f0-0e7c-46d4-a6c4-d46e5e7710f3" />
+
 
 
