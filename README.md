@@ -48,7 +48,7 @@
 
 ------
 
-![pony-town-  BANNER _ BLUE ADDISON  -boop-sit-padded-ponyplush-4x](https://github.com/user-attachments/assets/c5b421cd-8637-41f8-8105-ad60bc77c4ce)
+![pony-town-  Banner _ Blue Addison  -boop-sit-padded-4x](https://github.com/user-attachments/assets/e778ad18-9f35-4169-b13b-fad6c088a962)
 ![pony-town-_All we do is advertise!_-boop-sit-padded-4x](https://github.com/user-attachments/assets/a0914bc7-78c9-452e-be43-de7c2d41d31c)
 
 BTW: these are two different addison! Left is Banner and right is Blue! They're completely different people. 
