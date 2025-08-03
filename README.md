@@ -1,6 +1,4 @@
 
-# I do not like SpamTenna. Do not try to roleplay SpamTenna with me unless we are friends.
-
 ![1](https://github.com/user-attachments/assets/e4cf060c-e180-40d7-963c-e54bc4551458)
 
 ### 💙 - ***Hi! I'm that one blue addison you've maybe seen on ponytown.*** I LOVE the blue addison.
