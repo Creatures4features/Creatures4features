@@ -1,7 +1,7 @@
 
 
 ### 💙 - 
-### 🩷 - redoing all of this right now. so it;s kinda blank. 
+### 🩷 - redoing all of this right now. so EMPTY!!!
 ### 🧡 - 
 ### 💛 - 
 ### 🤍 -
