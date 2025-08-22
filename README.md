@@ -17,6 +17,8 @@ redoing all of this right now. so EMPTY!!!
 -------------
 
 <img width="960" height="884" alt="gay ass moirails" src="https://github.com/user-attachments/assets/18e79cb5-590c-48a6-b6e2-4b9b735cd9f2" />
-Get Trolled, silly!
+
+Oc X canon... CC and Gamzee are moirails <> 
+I'm cringe, but I'm having fun! :o)
 
 -------------
