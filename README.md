@@ -1,21 +1,24 @@
-### FINE YOU CAN SEE MY ART. LOWER YOUR EXPECTATIONS THOUGH. 
--------------
-<img width="1050" height="1000" alt="gay ass btihchc" src="https://github.com/user-attachments/assets/d295de3a-e57e-4fd3-a9b4-b251bdda6975" />
+redoing all of this right now. so EMPTY!!!
+
+![pony-town-  Blu _ Blue Addison  -annoyed-padded-ponyplush-4x](https://github.com/user-attachments/assets/ab29258c-2929-40bf-b2d4-9fd33132b44d)
+![pony-town-⚠  Your Wicked Company  ⚠-sneeze-padded-toy32-4x(1)](https://github.com/user-attachments/assets/dff6c426-8eb2-4646-9f50-cb00bdb5f8d4)
+
+
+### 💙 - I'm that one Blue Addison who's online a lot- Though recently I've been Spamton more often...
+### 🩷 - I'm most likely to respond to you if I'm with friends! I'm very anxious and it's hard for me to talk to new people when I'm alone,,,
+### 🧡 - If you compliment my ponies I will explode (this is a good thing.)
+### 💛 - ***ADDISONS ADDISONS ADDISONS ADDISONS ADDISONS ADDISONS ADDISONS ADDISONS*** !!!
+### 🤍 - Defernull Spamton can get it. Do you hear me. I want him. Or want to be him. I can never tell.
+
+
+![pony-town-  I LOVE TV ! ! ! 💕💕  -yawn-padded-toy32-4x(1)](https://github.com/user-attachments/assets/9cd28c4e-fcbb-4d89-a229-a8635b6a3d9f)
+![pony-town-🩵  TO THE END  💎-head-shake-padded-ponyplush-4x](https://github.com/user-attachments/assets/17d393a9-66e4-4124-9d51-e2a666207c01)
 
 -------------
 
-<img width="960" height="884" alt="gay ass moirails" src="https://github.com/user-attachments/assets/7565e77f-c3b6-4822-8e5f-86424cb67cfc" />
+<img width="960" height="884" alt="gay ass moirails" src="https://github.com/user-attachments/assets/18e79cb5-590c-48a6-b6e2-4b9b735cd9f2" />
 
--------------
-
-![uhhhhh](https://github.com/user-attachments/assets/e4dcd1ed-3a09-49e5-9a5a-830465b843a0)
-
--------------
-
-<img width="1250" height="1100" alt="no hallowenee" src="https://github.com/user-attachments/assets/58518f92-d155-4e74-8b00-81a0c9ed466c" />
-
--------------
-
-<img width="1100" height="1000" alt="dfg" src="https://github.com/user-attachments/assets/a92b4dc4-38a4-4410-afb1-2b936ee16e49" />
+Oc X canon... CC and Gamzee are moirails <> 
+I'm cringe, but I'm having fun! :o)
 
 -------------
