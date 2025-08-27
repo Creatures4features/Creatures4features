@@ -7,7 +7,7 @@ redoing all of this right now. so EMPTY!!!
 ### 💙 - I'm that one Blue Addison who's online a lot- Though recently I've been Spamton more often...
 ### 🩷 - I'm most likely to respond to you if I'm with friends! I'm very anxious and it's hard for me to talk to new people when I'm alone,,,
 ### 🧡 - If you compliment my ponies I will explode (this is a good thing.)
-### 💛 - ***ADDISONS ADDISONS ADDISONS ADDISONS ADDISONS ADDISONS ADDISONS ADDISONS*** !!!
+### 💛 -Does anyone want to webfish with me... 
 ### 🤍 - Defernull Spamton can get it. Do you hear me. I want him. Or want to be him. I can never tell.
 
 
