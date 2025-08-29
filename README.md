@@ -4,7 +4,7 @@ redoing all of this right now. so EMPTY!!!
 ![pony-town-⚠  Your Wicked Company  ⚠-sneeze-padded-toy32-4x(1)](https://github.com/user-attachments/assets/dff6c426-8eb2-4646-9f50-cb00bdb5f8d4)
 
 
-### 💙 - I'm Blue/Panic ! Friends can call me Buddy though (that is. my actual name.)
+### 💙 - I'm Panic ! Friends can call me Buddy though (that is. my actual name.)
 ### 🩷 - I'm most likely to respond to you if I'm with friends! I'm very anxious and it's hard for me to talk to new people when I'm alone,,,
 ### 🧡 - If you compliment my ponies I will explode (this is a good thing.)
 ### 💛 -Does anyone want to webfish with me... 
