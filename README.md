@@ -7,7 +7,7 @@ redoing all of this right now. so EMPTY!!!
 ### 💙 - I'm Panic ! Friends can call me Buddy though (that is. my actual name.)
 ### 🩷 - I'm most likely to respond to you if I'm with friends! I'm very anxious and it's hard for me to talk to new people when I'm alone,,,
 ### 🧡 - If you compliment my ponies I will explode (this is a good thing.)
-### 💛 -Does anyone want to webfish with me... 
+### 💛 -Troll IRL, trust me.
 ### 🤍 - Defernull Spamton can get it. Do you hear me. I want him. Or want to be him. I can never tell. Having put thought into it I absolutely want to be him and. Am now him. It's me. Trust.
 
 
