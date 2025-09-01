@@ -1,3 +1,6 @@
+
+
+
 redoing all of this right now. so EMPTY!!!
 
 ![pony-town-  Blu _ Blue Addison  -annoyed-padded-ponyplush-4x](https://github.com/user-attachments/assets/ab29258c-2929-40bf-b2d4-9fd33132b44d)
@@ -22,3 +25,23 @@ Oc X canon... CC and Gamzee are moirails <>
 I'm cringe, but I'm having fun! :o)
 
 -------------
+
+
+![1](https://github.com/user-attachments/assets/8124bece-5b5e-46e4-946a-623aec8b1761)
+
+
+<img width="1100" height="689" alt="troll doodels" src="https://github.com/user-attachments/assets/f9f47dbf-d29d-41cc-9743-31453fa52b10" />
+
+<img width="1050" height="1000" alt="PARATH" src="https://github.com/user-attachments/assets/8661000d-6fd2-41f1-ad29-e544852003aa" />
+
+<img width="1000" height="815" alt="LIEKEIL" src="https://github.com/user-attachments/assets/42845d6f-1680-4bb1-b489-9b67393abbc6" />
+
+<img width="1000" height="1000" alt="moar mlp designss" src="https://github.com/user-attachments/assets/f99b1cfb-ca3f-4367-b14f-cb5d5e71ee1d" />
+
+![davepeta final](https://github.com/user-attachments/assets/5bc4f2b6-9901-4e9c-8b2d-cbb62bb27108)
+
+
+
+<img width="295" height="270" alt="GODTIER BUDYY NEW" src="https://github.com/user-attachments/assets/0ad420cb-7b01-4260-8c57-ec2528c9b5d9" />
+
+<img width="284" height="255" alt="slightly Sugly clown" src="https://github.com/user-attachments/assets/f96e2b9c-8459-43ae-abd2-c573d7169434" />
