@@ -9,7 +9,7 @@
 
 ### 💜 - I'm most likely to respond to you if I'm with friends! I'm very anxious and it's hard for me to talk to new people when I'm alone,,,
 
-### 💚 - If you see me using a pony with [ 🎁'd ] in the name, it's a pony made by one of my friends!!!
+### 💚 - If you see me using a pony with [ 🎁'd ] in the name, it's a pony made by one of my friends!!! 🪲🦌
 
 ### 💜 - I'm fine with people taking inspo from my skins!!! I think it's so cool when my silly ponies inspire people.. hehehe
 ----------------------
