@@ -11,7 +11,7 @@
 
 ### 💚 - If you see me using a pony with [ 🎁'd ] in the name, it's a pony made by one of my friends!!! 🪲🦌
 
-### 💜 - I'm fine with people taking inspo from my skins!!! I think it's so cool when my silly ponies inspire people.. hehehe
+### 💜 - I'm fine with people taking inspo from my skins!!! I think it's so cool when my silly ponies inspire people.. Just! Don't take inspiration from my gifted skins :O
 ----------------------
 
 ![pony-town-🎵Are u Sure We're Meant 2 Be_-kiss-padded-5x](https://github.com/user-attachments/assets/b78a7b62-f0d9-4424-8ab7-fc19d229e509)
