@@ -3,7 +3,7 @@
 <img width="225" height="280" alt="pony-town-  tutelaryGrimoire _ HS OC  -lie-padded-ponyplush-5x" src="https://github.com/user-attachments/assets/50fcdd2a-bd84-4ab9-bba8-ba9f79c05ab1" />
 
 ----------------------
-### 💜 - I'm Panic! You can also call me Gamzee, Strider Or Creature! (Friends can call Buddy though!)
+### 💜 - I'm Panic! You can also call me Gamzee, Strider Or Creature! (Friends can call me Buddy though!)
 
 ### 💚 -  My pronouns are it/its. Only friends can use he/him.
 
