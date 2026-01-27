@@ -83,7 +83,7 @@
 
 
 
-### 💚 -  My pronouns are it/its. Only friends can use he/him.
+### 💚 -  My pronouns are it/its.
 
 
 
