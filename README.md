@@ -101,7 +101,7 @@
 
 
 
-### 💜 - I'm most likely to respond to you if I'm with friends! I'm very anxious and it's hard for me to talk to new people when I'm alone,,,
+### 💜 - I'm most likely to respond to you if I'm with friends! I'm very anxious and it's hard for me to talk to new people when I'm alone,,, I'm sorry if I come across as awkward or disinterested ,, My social skills are just lacking,, :<
 
 
 
