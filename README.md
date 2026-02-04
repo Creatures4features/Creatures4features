@@ -1,42 +1,13 @@
+![IMPORTANT](https://github.com/user-attachments/assets/a65fbfc8-5cbc-48c3-9187-d39efd22ea35)
 
 
-
-![cooltext501586920704235](https://github.com/user-attachments/assets/810dac68-8b52-4037-bc19-14d1e1407098)
-
-
-
-
+# $\color{purple}{\textsf{18+ TO INTERACT, PLEASE!}}$
 
 
 
 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-<img width="225" height="250" alt="pony-town-  affableAberration _ HS OC  -sit-padded-5x" src="https://github.com/user-attachments/assets/355abcda-832c-422a-a0c0-5adba357f701" />
-
-
-
-
-
-
-
-
-<img width="225" height="280" alt="pony-town-  tutelaryGrimoire _ HS OC  -lie-padded-ponyplush-5x" src="https://github.com/user-attachments/assets/50fcdd2a-bd84-4ab9-bba8-ba9f79c05ab1" />
 
 
 
@@ -63,7 +34,7 @@
 
 
 
-### 💜 - I'm Panic! You can also call me Gamzee, Strider Or Creature! (Friends can call me Buddy though!)
+### 💜 $\color{purple}{\textsf{- I'm Panic! You can also call me Gamzee, Strider Or Creature!}}$ 
 
 
 
@@ -81,7 +52,7 @@
 
 
 
-### 💚 -  My pronouns are it/its.
+### 💚 $\color{purple}{\textsf{-  My pronouns are it/its.}}$ 
 
 
 
@@ -99,7 +70,7 @@
 
 
 
-### 💜 - I'm most likely to respond to you if I'm with friends! I'm very anxious and it's hard for me to talk to new people when I'm alone,,, I'm sorry if I come across as awkward or disinterested ,, My social skills are just lacking,, :<
+### 💜 $\color{purple}{\textsf{- I'm most likely to respond to you if I'm with friends! I'm very anxious and it's hard for me to talk to people,}}$  
 
 
 
@@ -117,7 +88,7 @@
 
 
 
-### 💚 - If you see me using a pony with [ 🎁'd ] in the name, it's a pony made by one of my friends!!! 🪲🦌
+### 💚 $\color{purple}{\textsf{- If you see me using a pony with [ 🎁'd ] in the name, it's a pony made by one of my friends!!! 🪲🦌}}$   
 
 
 
@@ -135,7 +106,7 @@
 
 
 
-### 💜 - I'm fine with people taking inspo from my skins!!! I think it's so cool when my silly ponies inspire people.. Just! Don't take inspiration from my gifted skins :O
+### 💜 $\color{purple}{\textsf{- I'm fine with people taking inspo from my skins! Just don't take inspiration from my gifted skins :O}}$    
 
 
 
@@ -152,23 +123,10 @@
 
 
 
+![dirkandcal](https://github.com/user-attachments/assets/b563cae6-be0f-43cb-9a6a-7ef2bf53ed2e)
 
 
 
 
 
 
-
-
-
-
-![pony-town-🎵Are u Sure We're Meant 2 Be_-kiss-padded-5x](https://github.com/user-attachments/assets/b78a7b62-f0d9-4424-8ab7-fc19d229e509) ![pony-town-HEIR OF RA- Whuh wait a minute-kiss-padded-5x](https://github.com/user-attachments/assets/a15e54cf-af17-48d2-a6a4-ed056b47ce2d)
-
-
-
-
-
-
-
-
-let them KISS
