@@ -1,11 +1,9 @@
 
 
 
+![cooltext501586920704235](https://github.com/user-attachments/assets/810dac68-8b52-4037-bc19-14d1e1407098)
 
 
-
-
-# 18+ TO INTERACT !!!
 
 
 
