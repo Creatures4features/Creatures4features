@@ -1,9 +1,7 @@
-![IMPORTANT](https://github.com/user-attachments/assets/a65fbfc8-5cbc-48c3-9187-d39efd22ea35)
+# ![IMPORTANT](https://github.com/user-attachments/assets/a65fbfc8-5cbc-48c3-9187-d39efd22ea35)  $\color{purple}{\textsf{18+ TO INTERACT, PLEASE!}}$
 
 
-# $\color{purple}{\textsf{18+ TO INTERACT, PLEASE!}}$
-
-
+ 
 
 
 
@@ -125,7 +123,7 @@
 
 ![dirkandcal](https://github.com/user-attachments/assets/b563cae6-be0f-43cb-9a6a-7ef2bf53ed2e)
 
-
+----------------------
 
 -
 -
