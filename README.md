@@ -1,4 +1,4 @@
- ![IMPORTANT](https://github.com/user-attachments/assets/a65fbfc8-5cbc-48c3-9187-d39efd22ea35)  
+![Important Image](https://github.com/Creatures4features/Creatures4features/blob/main/IMPORTANT.gif)
 # $\color{purple}{\textsf{18+ TO INTERACT, PLEASE!}}$
 
 
