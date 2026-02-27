@@ -33,7 +33,7 @@
 
 
 
-### 💜 $\color{purple}{\textsf{- I'm Panic! You can also call me Gamzee, Strider Or Creature!}}$ 
+### 💀 $\color{purple}{\textsf{- I'm Panic. You can also call me Gamzee, Strider Or Creature.}}$ 
 
 
 
@@ -51,7 +51,7 @@
 
 
 
-### 💚 $\color{purple}{\textsf{-  My pronouns are it/its.}}$ 
+### 💀 $\color{purple}{\textsf{-  My pronouns are it/its.}}$ 
 
 
 
@@ -69,7 +69,7 @@
 
 
 
-### 💜 $\color{purple}{\textsf{- I'm most likely to respond to you if I'm with friends! I'm very anxious and it's hard for me to talk to people,}}$  
+### 💀 $\color{purple}{\textsf{- I don't care about dumb fandom discourse.}}$  
 
 
 
@@ -87,7 +87,7 @@
 
 
 
-### 💚 $\color{purple}{\textsf{- If you see me using a pony with [ 🎁'd ] in the name, it's a pony made by one of my friends!!! 🪲🦌}}$   
+### 💀 $\color{purple}{\textsf{- I'm very unlikely to respond.}}$   
 
 
 
@@ -105,7 +105,7 @@
 
 
 
-### 💜 $\color{purple}{\textsf{- I'm fine with people taking inspo from my skins! Just don't take inspiration from my gifted skins :O}}$    
+### 💀 $\color{purple}{\textsf{- You can take inspiration from my skins if you want to.}}$    
 
 
 
