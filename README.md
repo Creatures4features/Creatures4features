@@ -1,5 +1,5 @@
 ![Important Image](https://github.com/Creatures4features/Creatures4features/blob/main/IMPORTANT.gif)
-# $\color{purple}{\textsf{18+ TO INTERACT, PLEASE!}}$
+# $\color{purple}{\textsf{18+ TO INTERACT.}}$
 
 
  
@@ -125,29 +125,3 @@
 ![dirkandcal](https://github.com/user-attachments/assets/b563cae6-be0f-43cb-9a6a-7ef2bf53ed2e)
 
 ----------------------
-
--
--
--
--
--
--
--
--
--
--
--
--
--
--
--
--
--
-
-<img width="75" height="100" alt="sol" src="https://github.com/user-attachments/assets/775a3013-cd97-4cab-b0d9-044e36b4e99a" />
-
-<img width="75" height="100" alt="sol" src="https://github.com/user-attachments/assets/775a3013-cd97-4cab-b0d9-044e36b4e99a" />
-
-<img width="75" height="100" alt="sol" src="https://github.com/user-attachments/assets/775a3013-cd97-4cab-b0d9-044e36b4e99a" />
-
-<img width="75" height="100" alt="sol" src="https://github.com/user-attachments/assets/775a3013-cd97-4cab-b0d9-044e36b4e99a" />
