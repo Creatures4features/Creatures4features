@@ -1,3 +1,5 @@
+## need to re-do all of this... guh.
+
 ![Important Image](https://github.com/Creatures4features/Creatures4features/blob/main/IMPORTANT.gif)
 # $\color{purple}{\textsf{18+ TO INTERACT.}}$
 
