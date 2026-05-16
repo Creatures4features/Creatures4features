@@ -89,7 +89,7 @@
 
 
 
-### 💀 $\color{purple}{\textsf{- I'm very unlikely to respond.}}$   
+### 💀 $\color{purple}{\textsf{- I'm very anxious, so I'm unlikely to respond if I'm alone.}}$   
 
 
 
@@ -107,7 +107,7 @@
 
 
 
-### 💀 $\color{purple}{\textsf{- You can take inspiration from my skins if you want to.}}$    
+### 💀 $\color{purple}{\textsf{- You can take inspiration from my skins if you want to, just not my gifted skins or ocs.}}$    
 
 
 
