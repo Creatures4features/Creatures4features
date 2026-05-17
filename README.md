@@ -89,7 +89,7 @@
 
 
 
-### 💀 $\color{purple}{\textsf{- I'm very anxious, so I'm unlikely to respond if I'm alone.}}$   
+### 💀 $\color{purple}{\textsf{- I'm very anxious, so I'm unlikely to respond if I'm alone. If I'm not alone, I'm most likely sitting with my boyfriend <3}}$   
 
 
 
@@ -127,3 +127,7 @@
 ![dirkandcal](https://github.com/user-attachments/assets/b563cae6-be0f-43cb-9a6a-7ef2bf53ed2e)
 
 ----------------------
+
+
+
+<img width="235" height="285" alt="pony-town-🎵🌙_Body In Revolt_🖤🎵-laugh-padded-5x" src="https://github.com/user-attachments/assets/86ea1265-4585-4fb0-95c0-89047d7566fe" />
