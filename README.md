@@ -71,7 +71,7 @@
 
 
 
-### 💀 $\color{purple}{\textsf{- I don't care about dumb fandom discourse.}}$  
+### 💀 $\color{purple}{\textsf{- #1 Tagora Gorjek and Stygian fan }}$  
 
 
 
