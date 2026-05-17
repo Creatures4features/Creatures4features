@@ -89,7 +89,7 @@
 
 
 
-### 💀 $\color{purple}{\textsf{- I'm very anxious, so I'm unlikely to respond if I'm alone. If I'm not alone, I'm most likely sitting with my boyfriend <3}}$   
+### 💀 $\color{purple}{\textsf{- I'm very anxious, so I'm unlikely to respond if I'm alone.}}$   
 
 
 
@@ -128,6 +128,6 @@
 
 ----------------------
 
+<img width="230" height="245" alt="pony-town-i NEED that 50 year old man-lie-padded-toy426-5x" src="https://github.com/user-attachments/assets/378fa19a-50eb-464b-9fcd-6f2187fabfa7" />
+<img width="235" height="285" alt="pony-town-🎵🌙_Body In Revolt_🖤🎵-laugh-padded-5x" src="https://github.com/user-attachments/assets/86ea1265-4585-4fb0-95c0-89047d7566fe" /> <img width="235" height="260" alt="pony-town-mmm batteries 🤤🤤🤤   🎁&#39;d  -sit-padded-5x" src="https://github.com/user-attachments/assets/afba82ae-b867-456c-8c7d-ac09ca68a8c2" />  <-- Amazing Gorgor skin made by my boyfriend <3
 
-
-<img width="235" height="285" alt="pony-town-🎵🌙_Body In Revolt_🖤🎵-laugh-padded-5x" src="https://github.com/user-attachments/assets/86ea1265-4585-4fb0-95c0-89047d7566fe" />
