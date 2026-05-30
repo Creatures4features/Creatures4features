@@ -71,7 +71,7 @@
 
 
 
-### 💀 $\color{purple}{\textsf{- Number 1 Tagora Gorjek and Stygian fan}}$  
+### 💀 $\color{purple}{\textsf{- Number 1 Tagora Gorjek fan ! ! ! }}$  
 
 
 
