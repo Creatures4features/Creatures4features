@@ -88,7 +88,7 @@
 
 
 
-### 💀 $\color{purple}{\textsf{- I'm very anxious, so I'm unlikely to respond if I'm alone.}}$   
+### 💀 $\color{purple}{\textsf{- I'm very anxious, so I'm VERY unlikely to respond if I'm alone.}}$   
 
 
 
