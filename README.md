@@ -13,6 +13,10 @@
 
 ------
 
+## I don't think DNIs work well,,, but. I will say that I believe transandrophobia is a very real thing. If this upsets you, you should just block me.
+
+
+------
 
 uuhghhh ineed to finish remaking this.but
 so sleepy always
