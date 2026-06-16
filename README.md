@@ -9,7 +9,7 @@
 
 ### 💀 I'm Panic,,, you can also call me Gamzee or Strider. My pronouns are it/its.
 
-### 🧠 I'm very very anxious, I can't talk to new people if I'm alone,, 
+### 🧠 I'm very very anxious, I struggle to talk to new people if I'm alone,, so please be patient,, 
 
 ### 🪦 You can take inspiration from my ponies if you want to,, just. Not my gifted skins.
 
