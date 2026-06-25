@@ -13,6 +13,8 @@
 
 ### 🪦 You can take inspiration from my ponies if you want to,, just. Not my gifted skins.
 
+### 🩸 I don't care about fandom discourse. If you talk about discourse too much, I will probably mute you.
+
 #  🐐💜💚🪲
 
 ------
