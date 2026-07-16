@@ -13,7 +13,7 @@
 
 ### 🪦 You can take inspiration from my ponies if you want to,, just. Not my gifted skins.
 
-### 🩸 i eat rocks and dirt
+### 🩸 Be nice to everyone, forever and always.
 
 #  🐐💜💚🪲
 
