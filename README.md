@@ -32,7 +32,10 @@
 - Susie x Ralsei
 - Polymikes
 - Battat x Tenna
-  
+
+
+![ralsei1](ralseispin.gif)
+
 
 ##  Ships ❌
 - Susie x Noelle
