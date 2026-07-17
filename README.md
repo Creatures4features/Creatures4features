@@ -45,7 +45,8 @@
 - Spamton x Queen
 - Spamton x Swatch
 
-  
+
+  ![ralsei2](ralseiyippee.gif)
 
 ------
 
