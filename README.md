@@ -34,7 +34,7 @@
 - Battat x Tenna
 
 
-![ralsei1](ralseispin.gif)
+![ralsei1](ralseispins.gif)
 
 
 ##  Ships ❌
