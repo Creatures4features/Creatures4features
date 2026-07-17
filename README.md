@@ -1,9 +1,9 @@
 
 # +18 to interact. 
 
-<img width="336" height="208" alt="1" src="https://github.com/user-attachments/assets/c84b7ffd-5481-4ebd-a862-37340aebd825" />
+------
 
-
+![addisons1](1.gif)
 
 ------
 
@@ -16,6 +16,10 @@
 ### 🩸 Be nice to everyone, forever and always.
 
 #  🐐💜💚🪲
+
+------
+
+![addisons2](2.gif)
 
 ------
 
