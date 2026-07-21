@@ -24,6 +24,7 @@
 ------
 
 ##  Ships ✔️
+### Deltarune
 - Addisons x Spamton
 - Addisons x Addisons
 - Kris x Noelle
@@ -36,6 +37,19 @@
 
 ![ralsei1](ralseispins.gif)
 
+### Homestuck
+- Davejohn
+- Davesol
+- Johnrose
+- Johnkat
+- Gamkat
+- Solkat
+- Nepkat
+- Jadekat
+- Johnrox
+- Dadbert x Bro
+
+ ![dirky](dirkandcal.gif)
 
 ##  Ships ❌
 - Susie x Noelle
@@ -47,6 +61,15 @@
 
 
   ![ralsei2](ralseiyippee.gif)
+
+
+### Homestuck
+- Davekat
+- Dirk x Caliborn
+- Crotuna
+- Davejade
+
+ ![ou](IMPORTANT.gif)
 
 ------
 
