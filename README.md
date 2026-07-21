@@ -38,15 +38,15 @@
 ![ralsei1](ralseispins.gif)
 
 ### Homestuck
-- Davejohn
-- Davesol
-- Johnrose
-- Johnkat
-- Gamkat
-- Solkat
-- Nepkat
-- Jadekat
-- Johnrox
+- Dave x John
+- Dave x Sollux
+- John x Rose
+- John x Karkat
+- Gamzee x Karkat
+- Sollux x Karkat
+- Nepeta x Karkat
+- Jade x Karkat
+- John x Roxy
 - Dadbert x Bro
 
  ![dirky](dirkandcal.gif)
@@ -64,10 +64,10 @@
 
 
 ### Homestuck
-- Davekat
+- Dave x Karkat
 - Dirk x Caliborn
-- Crotuna
-- Davejade
+- Cronus x Mituna
+- Dave x Jade
 
  ![ou](IMPORTANT.gif)
 
