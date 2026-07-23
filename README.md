@@ -24,7 +24,7 @@
 ------
 
 ##  Ships ✔️
-### Deltarune
+## Deltarune
 - Addisons x Spamton
 - Addisons x Addisons
 - Kris x Noelle
@@ -37,7 +37,7 @@
 
 ![ralsei1](ralseispins.gif)
 
-### Homestuck
+## Homestuck
 - Dave x John
 - Dave x Sollux
 - John x Rose
@@ -52,6 +52,7 @@
  ![dirky](dirkandcal.gif)
 
 ##  Ships ❌
+## Deltarune
 - Susie x Noelle
 - Kris x Susie
 - Spamton x Tenna ( i only rp spamtenna with my bf )
@@ -63,7 +64,7 @@
   ![ralsei2](ralseiyippee.gif)
 
 
-### Homestuck
+## Homestuck
 - Dave x Karkat
 - Dirk x Caliborn
 - Cronus x Mituna
