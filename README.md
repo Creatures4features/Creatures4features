@@ -13,7 +13,7 @@
 
 ### 🪦 You can take inspiration from my ponies if you want to,, just. Not my gifted skins.
 
-### 🩸 Be nice to everyone, forever and always.
+### 🩸 "🎁'd" = gifted skin. Most of my gifted skins are made by my boyfriend 🪲 <3
 
 #  🐐💜💚🪲
 
