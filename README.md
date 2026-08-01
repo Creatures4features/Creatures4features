@@ -1,7 +1,7 @@
 
 # +18 to interact. 
 
-<img width="351" height="300" alt="chair spin-export" src="https://github.com/user-attachments/assets/5e8dfa87-d7e7-4f6c-a817-a48eea6598d5" />
+
 
 
 ------
