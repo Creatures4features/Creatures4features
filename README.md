@@ -3,7 +3,7 @@
 
 
 # +18 to interact. 
-# Transandrophobes fucking explode
+# Transandrophobes explode
 
 
 
