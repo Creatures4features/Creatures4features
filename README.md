@@ -3,7 +3,7 @@
 
 
 # +18 to interact. 
-# Transandrophobes explode
+# all my favourite characters get hit by my transmasc beam 
 
 
 
