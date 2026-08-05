@@ -3,7 +3,7 @@
 
 
 # +18 to interact. 
-# fuck off if you use tme/tma
+
 
 
 
