@@ -3,7 +3,7 @@
 
 
 # +18 to interact. 
-# all my favourite characters get hit by my transmasc beam 
+# fuck off if you use tme/tma
 
 
 
