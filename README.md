@@ -22,6 +22,8 @@
 
 ### 🩸 "🎁'd" = gifted skin. Most of my gifted skins are made by my boyfriend 🪲 <3
 
+### 🪏 I won't roleplay with ship fankids unless we're already friends. Spamtenna fankids, do not interact with my spamton 👍
+
 #  🐐💜💚🪲
 
 ------
