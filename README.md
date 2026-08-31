@@ -20,11 +20,10 @@
 
 ### 🪦 You can take inspiration from my ponies if you want to,, just. Not my gifted skins.
 
-### 🩸 "🎁'd" = gifted skin. Most of my gifted skins are made by my boyfriend 🪲 <3
+### 🩸 "🎁'd" = gifted skin. 
 
 ### 🪏 I won't roleplay with ship fankids unless we're already friends. Spamtenna fankids, do not interact with my spamton 👍
 
-#  🐐💜💚🪲
 
 ------
 
@@ -64,7 +63,7 @@
 ## Deltarune
 - Susie x Noelle
 - Kris x Susie
-- Spamton x Tenna ( i only rp spamtenna with my bf )
+- Spamton x Tenna 
 - Spamton x Jevil
 - Spamton x Queen
 - Spamton x Swatch
