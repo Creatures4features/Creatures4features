@@ -16,13 +16,8 @@
 
 ### 💀 I'm Panic,,, you can also call me Gamzee or Strider. My pronouns are it/its.
 
-### 🧠 I'm very very anxious, I struggle to talk to new people if I'm alone,, so please be patient,, 
 
-### 🪦 You can take inspiration from my ponies if you want to,, just. Not my gifted skins.
 
-### 🩸 "🎁'd" = gifted skin. 
-
-### 🪏 I won't roleplay with ship fankids unless we're already friends. Spamtenna fankids, do not interact with my spamton 👍
 
 
 ------
@@ -30,17 +25,6 @@
 ![addisons2](2.gif)
 
 ------
-
-##  Ships ✔️
-## Deltarune
-- Addisons x Spamton
-- Addisons x Addisons
-- Kris x Noelle
-- Kris x Ralsei
-- Kris x Berdly
-- Susie x Ralsei
-- Polymikes
-- Battat x Tenna
 
 
 ![ralsei1](ralseispins.gif)
@@ -58,15 +42,6 @@
 - Dadbert x Bro
 
  ![dirky](dirkandcal.gif)
-
-##  Ships ❌
-## Deltarune
-- Susie x Noelle
-- Kris x Susie
-- Spamton x Tenna 
-- Spamton x Jevil
-- Spamton x Queen
-- Spamton x Swatch
 
 
   ![ralsei2](ralseiyippee.gif)
