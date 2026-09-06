@@ -16,6 +16,7 @@
 
 ### 💀 I'm Panic,,, you can also call me Gamzee or Strider. My pronouns are it/its.
 
+### 🩸 Mellows #1 Fan. 
 
 
 
