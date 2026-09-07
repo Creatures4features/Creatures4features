@@ -16,7 +16,7 @@
 
 ### 💀 I'm Panic,,, you can also call me Gamzee or Strider. My pronouns are it/its.
 
-### 🩸 Mellows #1 Fan. 
+### 🩸 Familial Mellow selfshipper; he is my son. Doubles do not interact.
 
 ### 🪦 "🎁'd" = gifted skin. Most of my gifted skins are made by my boyfriend 🪲 <3
 
