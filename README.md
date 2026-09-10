@@ -30,7 +30,7 @@
 
 ![ralsei1](ralseispins.gif)
 
-## Homestuck
+## Homestuck Ships I Like ✅
 - Dave x John
 - Dave x Sollux
 - John x Rose
@@ -48,7 +48,7 @@
   ![ralsei2](ralseiyippee.gif)
 
 
-## Homestuck
+## Homestuck Ships I Hate ❌
 - Dave x Karkat
 - Dirk x Caliborn
 - Cronus x Mituna
