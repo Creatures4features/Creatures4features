@@ -41,6 +41,8 @@
 - Jade x Karkat
 - John x Roxy
 - Dadbert x Bro
+- Roxy X Jane
+- Nepeta x Jade x Feferi 
 
  ![dirky](dirkandcal.gif)
 
@@ -53,6 +55,7 @@
 - Dirk x Caliborn
 - Cronus x Mituna
 - Dave x Jade
+- Dirk x John
 
  ![ou](IMPORTANT.gif)
 
