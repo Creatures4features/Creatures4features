@@ -20,7 +20,7 @@
 
 ### 🪦 "🎁'd" = gifted skin. Most of my gifted skins are made by my boyfriend 🪲 <3
 
-
+### 🦴 I have bad social anxiety, I won't respond to you if I'm alone.
 ------
 
 ![addisons2](2.gif)
