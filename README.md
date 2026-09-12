@@ -4,6 +4,8 @@
 
 # +18 to interact. 
 
+# Endacopia fandom DNI. I love endacopia, but I don't want to interact with other fans due to personal reasons.
+
 
 
 
@@ -16,7 +18,7 @@
 
 ### 💀 I'm Panic,,, you can also call me Gamzee or Strider. My pronouns are it/its.
 
-### 🩸 Familial Mellow selfshipper; he is my son. Doubles do not interact.
+### 🩸 Familial Mellow selfshipper; he is my son. 
 
 ### 🪦 "🎁'd" = gifted skin. Most of my gifted skins are made by my boyfriend 🪲 <3
 
