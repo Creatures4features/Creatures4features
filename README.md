@@ -4,8 +4,6 @@
 
 # +18 to interact. 
 
-# Endacopia fandom DNI. I love endacopia, but I don't want to interact with other fans due to personal reasons.
-
 
 
 
