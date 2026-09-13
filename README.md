@@ -41,6 +41,7 @@
 - Jade x Karkat
 - John x Roxy
 - Dadbert x Bro
+- Grandpa Harley x Bro
 - Roxy X Jane
 - Nepeta x Jade x Feferi 
 
