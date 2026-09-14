@@ -73,5 +73,5 @@ uuhghhh ineed to finish remaking this.but
 so sleepy always
 
 
-![mellow1](chairspin.gif)
+![mellow1](chairspinbetter.gif)
 
