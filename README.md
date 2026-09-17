@@ -31,19 +31,23 @@
 ![ralsei1](ralseispins.gif)
 
 ## Homestuck Ships I Like ✅
-- Dave x John
-- Dave x Sollux
-- John x Rose
-- John x Karkat
-- Gamzee x Karkat
-- Sollux x Karkat
-- Nepeta x Karkat
-- Jade x Karkat
-- John x Roxy
-- Dadbert x Bro
-- Grandpa Harley x Bro
-- Roxy X Jane
+- Dave x John 
+- Dave x Sollux 
+- John x Rose 
+- Rose x Aradia 
+- John x Karkat 
+- Gamzee x Karkat 
+- Sollux x Karkat 
+- Nepeta x Karkat  
+- Jade x Karkat 
 - Nepeta x Jade x Feferi 
+- John x Roxy 
+- Roxy x Jane 
+- Roxy x Jane x Calliope 
+- Dadbert x Bro 
+- Grandpa Harley x Bro 
+
+
 
  ![dirky](dirkandcal.gif)
 
@@ -51,12 +55,14 @@
   ![ralsei2](ralseiyippee.gif)
 
 
-## Homestuck Ships I Hate ❌
-- Dave x Karkat
+## Homestuck Ships I Dislike ( nothing against people who like them! ) ❌
+
+- Dave x Karkat 
+- Dave x Jade 
+- Dirk x John 
 - Dirk x Caliborn
-- Cronus x Mituna
-- Dave x Jade
-- Dirk x John
+- Cronus x Mituna 
+
 
  ![ou](IMPORTANT.gif)
 
