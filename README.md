@@ -18,7 +18,7 @@
 
 ### 🩸 Familial Mellow selfshipper; he is my son. I am strictly NON-SHARING.
 
-### ⚰️ #1 Surgeon hater. Fuck that guy.
+### ⚰️ #1 Surgeon hater. Fuck that guy. He would not be a good father to Mellow :/
 
 ### 🪦 "🎁'd" = gifted skin. Most of my gifted skins are made by my boyfriend 🪲 <3
 
