@@ -18,7 +18,7 @@
 
 ### 🩸 Familial Mellow selfshipper; he is my son. I am strictly NON-SHARING.
 
-### ⚰️ #1 Surgeon hater. Fuck that guy. Get him away from my kid.
+### ⚰️ Endacopia fans Do Not Interact. 
 
 ### 🪦 "🎁'd" = gifted skin. Most of my gifted skins are made by my boyfriend 🪲 <3
 
