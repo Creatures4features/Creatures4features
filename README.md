@@ -18,8 +18,6 @@
 
 ### 🩸 Familial Mellow selfshipper; he is my son. I am strictly NON-SHARING.
 
-### ⚰️ Endacopia fans Do Not Interact. 
-
 ### 🪦 "🎁'd" = gifted skin. Most of my gifted skins are made by my boyfriend 🪲 <3
 
 ### 🦴 I have bad social anxiety, I won't respond to you if I'm alone.
@@ -77,8 +75,7 @@
 
 
 
-uuhghhh ineed to finish remaking this.but
-so sleepy always
+I LOVE TRANS MEN ! ! !   I LOVE TRANSMASCS ! ! !   YIPPEEE!!!!!!!
 
 
 ![mellow1](chairspinbetter.gif)
